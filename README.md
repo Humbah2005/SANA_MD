@@ -1,7 +1,7 @@
 ---------
 
-### <br>  ❖ SANA_MD ❖
-🔰 **`THE WORLD BEST WHATSAPP BOT CREATED BY SANA KHAN`** 🔰
+### <br>  ❖ humbah_md❖
+🔰 **`THE WORLD BEST WHATSAPP BOT CREATED BY ALPHA HUMBAH `** 🔰
 
 ----------
 
